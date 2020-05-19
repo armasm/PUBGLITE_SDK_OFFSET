@@ -1,44 +1,44 @@
-See the sun set
-The day is ending
-Let that yawn out
-There's no pretending
-I will hold you
-And protect you
-So let love warm you
-Till the morning
-I'll stay with you
-By your side
-Close your tired eyes
-I'll wait and soon
-I'll see your smile
-In our dream
-And I won't wake before you go
-And I still hear your heart beat
-Feel the wind rise
-A dawn we're bound to
-Watch that star die
-Eons without you
-I'll stay with you
-In your mind
-Every single day
-I'll wait and soon
-We're stranded on the beach
-In our dream
-We left too soon
-But in our lies
-There's a truth to find
-The end is new
-A tomorrow we must reach for
-To be heard
-See the sun set
-The day is ending
-Let your heart sigh
-See the sun set
-See the sun set
-Try to stay with you
-Oh I won't stray away from the truth
-And I
-Love anew
-And I still want you let
-Own you
-And I oooh oohhh
+See the sun set<br>
+The day is ending<br>
+Let that yawn out<br>
+There's no pretending<br>
+I will hold you<br>
+And protect you<br>
+So let love warm you<br>
+Till the morning<br>
+I'll stay with you<br>
+By your side<br>
+Close your tired eyes<br>
+I'll wait and soon<br>
+I'll see your smile<br>
+In our dream<br>
+And I won't wake before you go<br>
+And I still hear your heart beat<br>
+Feel the wind rise<br>
+A dawn we're bound to<br>
+Watch that star die<br>
+Eons without you<br>
+I'll stay with you<br>
+In your mind<br>
+Every single day<br>
+I'll wait and soon<br>
+We're stranded on the beach<br>
+In our dream<br>
+We left too soon<br>
+But in our lies<br>
+There's a truth to find<br>
+The end is new<br>
+A tomorrow we must reach for<br>
+To be heard<br>
+See the sun set<br>
+The day is ending<br>
+Let your heart sigh<br>
+See the sun set<br>
+See the sun set<br>
+Try to stay with you<br>
+Oh I won't stray away from the truth<br>
+And I<br>
+Love anew<br>
+And I still want you let<br>
+Own you<br>
+And I oooh oohhh<br>
